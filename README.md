@@ -1,5 +1,5 @@
 # CHRISTIAN KENT GUCELA
-## 5 dislikes-Junkfoods,Car-crashed,Plane-Crashed,Jumpingin the cliff,Eating hot Foods
+## What did the mermaid wear to her math class? An algae bra
 
 ### Ramirez   Exclamador
 
